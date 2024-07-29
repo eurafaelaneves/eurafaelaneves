@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @eurafaelaneves
 -  ⭐️🪬
-- 🌱 projeto de vida pisicolpgi
+- 🌱 projeto de vida pisicologia
 - 🎀 sou tia de um casal
 - 💞️gosto de culinaria
   
